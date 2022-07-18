@@ -1,6 +1,6 @@
 ## Darova
 
+V prinsipe vsyo ponyatno
 
-Che kak tam pediki?
+Nujna tolko praktika
 
-Kogda sxodka?
